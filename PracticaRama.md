@@ -1,1 +1,2 @@
-Mi codigo es U22243403 Brayan Joseph Peña Ochochoque
+Mi codigo es  Brayan Joseph Peña Ochochoque - U22243403
+Estudiante Juan César Retuerto Ibañez - U23208480
